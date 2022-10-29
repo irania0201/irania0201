@@ -1,4 +1,4 @@
-### Hi, I'm Irania! 
+### Hi, I'm Irania! :wave:
 
 I am currently a 4th year Computer Engineering student with a minor in Biomedical Engineering at UC Irvine. 
 
